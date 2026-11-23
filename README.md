@@ -1,0 +1,1 @@
+# T-cnicasComputacionais-refletindosobreIntelig-nciaArtificialnaescola
